@@ -1,5 +1,6 @@
-<img width="735" height="266" alt="Image" src="https://github.com/user-attachments/assets/7b1abef7-5b12-4e5a-bedd-aedc5071c0e3" />
+<img width="735" height="174" alt="Image" src="https://github.com/user-attachments/assets/6643d3e4-bb94-414c-9172-7e9eff929b57" />
 
-<img width="735" height="847" alt="Image" src="https://github.com/user-attachments/assets/8a076b91-dda2-465e-876a-c5ec3f76a1b9" />
+<img width="735" height="847" alt="Image" src="https://github.com/user-attachments/assets/83e187a5-2086-4901-a767-46f52b611a1c" />
+
 
 Yes, I was secretly photographed with the pony skin and they posted it on Pinterest. I hope you don't copy my skin because you might make it look better than mine.
