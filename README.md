@@ -3,4 +3,4 @@
 
 <img width="735" height="194" alt="Image" src="https://github.com/user-attachments/assets/3545f848-c9ec-40ed-af56-ce04b1f35e94" />
 
-Yes, I was secretly photographed with the pony skin and they posted it on Pinterest. I hope you don't copy my skin because you might make it look better than mine.
+Don't study or refer to my style, I was secretly photographed by strangers and they posted my skin on Pinterest. I hope you don't take ideas from there.
